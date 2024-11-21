@@ -75,3 +75,14 @@ la FNMT-RCM ha sido capaz de mantener su esencia como fábrica de billete, moned
 sellos y otros productos tradicionales. Cuatrocientos años después, la FNMT-RCM
 continúa realizando tales actividades tradicionales, pero también ha realizado un
 importante viraje hacia otras actividades de última generación tecnológica.
+
+Por una parte, de conformidad con el artículo 81 de la Ley 66/1997, de 30 de
+diciembre, de Medidas Fiscales, Administrativas y del Orden Social relativo a la
+«prestación de servicios de seguridad por la FNMT-RCM», la FNMT-RCM se ha
+consolidado como un prestador de servicios de confianza y de certificación electrónica
+que incluyen, entre otros, tanto el desarrollo de nuevas tecnologías aplicables a la
+seguridad electrónica y, en especial, aquellas que tengan conexión con la seguridad del
+tráfico administrativo oficial, como las relativas al etiquetado y emisión de códigos de
+trazabilidad de productos derivados de las labores del tabaco, habiendo sido la
+FNMT-RCM designada como generador y emisor de identificadores de productos del
+tabaco en todo el territorio nacional.
