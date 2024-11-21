@@ -105,4 +105,11 @@ Público.
 La FNMT-RCM está adscrita al Ministerio de Hacienda y Función Pública a
 través de su Subsecretaría que ejercerá respecto de aquélla la dirección estratégica, la
 evaluación de los resultados de su actividad y el control de eficacia en los términos
-previstos en la citada norma
+previstos en la citada norma.
+
+La FNMT-RCM será medio propio personificado de la Administración General del
+Estado, de las comunidades y ciudades autónomas y de las entidades locales, así como
+de los organismos, entes y entidades del sector público estatal, autonómico y local, en
+los términos previstos en el artículo 5.1 del presente Estatuto.
+4. La FNMT-RCM tiene personalidad jurídica pública diferenciada, patrimonio y
+tesorería propios y autonomía de gestión en los términos de dicha ley.
