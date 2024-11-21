@@ -64,3 +64,10 @@ FNMT-RCM; por el Real Decreto 390/2011, de 18 de marzo, que suprimió la Fundaci
 Real Casa de la Moneda y adaptó sus fines culturales al nuevo marco legal, y por el Real
 Decreto 336/2014, de 9 de mayo, por el que se amplió el ámbito de destinatarios de la
 actividad de la FNMT-RCM como medio propio.
+
+No obstante, la derogación del Real Decreto 1114/1999, de 25 de junio, y la
+aprobación de un nuevo Estatuto de la FNMT-RCM es ahora imprescindible, debido a los
+cambios profundos que han acaecido con la entrada en vigor de nuevas leyes que son
+columna vertebral del derecho administrativo.
+
+
