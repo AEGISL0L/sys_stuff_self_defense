@@ -12,4 +12,10 @@ Información Institucional
 
 La Fábrica Nacional de Moneda y Timbre-Real Casa de la Moneda es una entidad pública empresarial (EPE) y medio propio (MP) de la Administración General del Estado, de conformidad con sus Estatutos y la Ley 40/2015, de 1 de octubre, de Régimen Jurídico del Sector Público.
 
+Normativa
 
+El Consejo de Ministros ha aprobado el Real Decreto 51/2023, de 31 de enero, por el que se aprueba el Estatuto de la Fábrica Nacional de Moneda y Timbre-Real Casa de la Moneda, Entidad Pública Empresarial, Medio Propio.
+
+El nuevo estatuto viene a sustituir al anterior en vigor desde 1999, actualizando su contenido y adaptándolo a la normativa vigente.
+
+De esta forma, con este nuevo Estatuto, la FNMT puede afrontar mejor y con respaldo normativo, los retos de futuro.
