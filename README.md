@@ -86,3 +86,13 @@ tráfico administrativo oficial, como las relativas al etiquetado y emisión de 
 trazabilidad de productos derivados de las labores del tabaco, habiendo sido la
 FNMT-RCM designada como generador y emisor de identificadores de productos del
 tabaco en todo el territorio nacional.
+
+Por otra parte, según lo dispuesto en la disposición adicional séptima de la
+Ley 15/2014, de 16 de septiembre, de racionalización del Sector Público y otras medidas
+de reforma administrativa relativa a la «encomienda general para la prestación de
+servicios de administración electrónica por la FNMT-RCM en el ámbito de la
+Administración General del Estado», la FNMT-RCM presta una pluralidad de servicios
+electrónicos que abarcan, entre otros, aquellos en materia de dirección electrónica única
+y notificación electrónica, de digitalización, los derivados de validación respecto del
+documento nacional de identidad electrónica, aquellos que configuran a la FNMT-RCM
+como Tercera Parte de Confianza en sus relaciones entre administracion
