@@ -44,4 +44,15 @@ Funcionamiento de la Administración General de Estado, se aprueba su Estatuto y
 acuerda su denominación como Fábrica Nacional de Moneda y Timbre-Real Casa de la
 Moneda.
 
+La aprobación de un nuevo Estatuto de la FNMT-RCM responde a una triple finalidad:
+adaptar su norma reguladora al ordenamiento jurídico vigente; desarrollar los requisitos
+previstos en los artículos 32 y 33 de la Ley 9/2017, de 8 de noviembre, de Contratos del
+Sector Público, por la que se transponen al ordenamiento jurídico español las Directivas
+del Parlamento Europeo y del Consejo 2014/23/UE y 2014/24/UE, de 26 de febrero
+de 2014, en relación con la ampliación del ámbito subjetivo de los diferentes poderes
+adjudicadores y no adjudicadores que pueden realizar encargos a la FNMT-RCM en su
+condición de medio propio; y recoger las diversas actividades de seguridad, innovación y
+administración digital que están configurando a la FNMT-RCM como un referente en el
+ámbito de los servicios digitales y la innovación
+
 
