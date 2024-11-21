@@ -55,4 +55,12 @@ condición de medio propio; y recoger las diversas actividades de seguridad, inn
 administración digital que están configurando a la FNMT-RCM como un referente en el
 ámbito de los servicios digitales y la innovación
 
-
+Por lo que respecta al primero de los objetivos a los que responde esta norma, hay
+que indicar que el citado Real Decreto 1114/1999, de 25 de junio, ha sido modificado en
+varias ocasiones, en concreto, por el Real Decreto 199/2009, de 23 de febrero, que
+atribuyó a la FNMT-RCM la condición de medio propio de la Administración General del
+Estado y de sus organismos dependientes modificando el artículo 2.7 del Estatuto de la
+FNMT-RCM; por el Real Decreto 390/2011, de 18 de marzo, que suprimió la Fundación
+Real Casa de la Moneda y adaptó sus fines culturales al nuevo marco legal, y por el Real
+Decreto 336/2014, de 9 de mayo, por el que se amplió el ámbito de destinatarios de la
+actividad de la FNMT-RCM como medio propio.
