@@ -95,4 +95,9 @@ Administración General del Estado», la FNMT-RCM presta una pluralidad de servi
 electrónicos que abarcan, entre otros, aquellos en materia de dirección electrónica única
 y notificación electrónica, de digitalización, los derivados de validación respecto del
 documento nacional de identidad electrónica, aquellos que configuran a la FNMT-RCM
-como Tercera Parte de Confianza en sus relaciones entre administracion
+como Tercera Parte de Confianza en sus relaciones entre administracion.
+
+La Fábrica Nacional de Moneda y Timbre-Real Casa de la Moneda (en adelante
+FNMT- RCM) tiene la consideración de entidad pública empresarial de las previstas en el
+artículo 84.1.a).2 de la Ley 40/2015, de 1 de octubre, de Régimen Jurídico del Sector
+Público.
