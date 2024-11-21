@@ -70,4 +70,8 @@ aprobación de un nuevo Estatuto de la FNMT-RCM es ahora imprescindible, debido 
 cambios profundos que han acaecido con la entrada en vigor de nuevas leyes que son
 columna vertebral del derecho administrativo.
 
-
+Desde la creación por el Rey Felipe III de la Casa de la Moneda de Madrid en 1615,
+la FNMT-RCM ha sido capaz de mantener su esencia como fábrica de billete, moneda,
+sellos y otros productos tradicionales. Cuatrocientos años después, la FNMT-RCM
+continúa realizando tales actividades tradicionales, pero también ha realizado un
+importante viraje hacia otras actividades de última generación tecnológica.
