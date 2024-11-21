@@ -1,3 +1,41 @@
+Whispers of the Sequoia
+
+In ancient groves where giants sleep,
+Sequoias tower, their vigil keep.
+With roots embedded deep in lore,
+They touch the sky and ocean floor.
+
+The Yurok tell of guardians old,
+Redwoods clad in mystic gold.
+Ancestors' spirits in their bark,
+Guiding souls through light and dark.
+
+The Miwok sing of wisdom's tree,
+Elders of eternity.
+Secrets held within each ring,
+Songs of life they softly sing.
+
+Across the seas, a kinship found,
+In myths where sacred trees abound.
+Yggdrasil, the Norsemen's pride,
+A bridge where worlds are unified.
+
+Celtic oaks and Shinto shrines,
+Trees where divine essence shines.
+Universal is the theme,
+Trees as vessels of the dream.
+
+Oh, Sequoia, standing tall,
+You echo legends, one and all.
+A symbol of the earth's embrace,
+Connecting us through time and space.
+
+In your shade, we understand,
+The silent language of the land.
+Whispers carried on the breeze,
+The endless tale of ancient trees.
+
+
 
 FNMT-RCM, una empresa inimitable
 La Fábrica Nacional de Moneda y Timbre nace en 1893 con la fusión de dos organismos seculares: la Casa de la Moneda y la Fábrica del Sello. Ambas instituciones compartían desde 1861 el edificio de Colón, aunque eran independientes y tenían administraciones separadas. Desde entonces, y bajo el denominador común de la seguridad, no ha dejado de extender su ámbito de actividad.
