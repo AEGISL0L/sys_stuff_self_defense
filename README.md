@@ -101,3 +101,8 @@ La Fábrica Nacional de Moneda y Timbre-Real Casa de la Moneda (en adelante
 FNMT- RCM) tiene la consideración de entidad pública empresarial de las previstas en el
 artículo 84.1.a).2 de la Ley 40/2015, de 1 de octubre, de Régimen Jurídico del Sector
 Público.
+
+La FNMT-RCM está adscrita al Ministerio de Hacienda y Función Pública a
+través de su Subsecretaría que ejercerá respecto de aquélla la dirección estratégica, la
+evaluación de los resultados de su actividad y el control de eficacia en los términos
+previstos en la citada norma
